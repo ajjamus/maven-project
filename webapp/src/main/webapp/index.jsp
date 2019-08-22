@@ -1,1 +1,1 @@
-Manor is my lovely wife
+live your life with jinkens.....AJ
